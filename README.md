@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tejaraju963
-- 👀 I’m offering financial services
-- 🌱 it's time file ypur income tax returns
-- 💞️ I’m looking to collaborate on income tax returns
+- ✍️ I’m offering financial services
+- 💬 it's time file your income tax returns
+- 🤝 I’m looking to collaborate on income tax returns
 - 📫 Reach me @7674806674
 
 <!---
